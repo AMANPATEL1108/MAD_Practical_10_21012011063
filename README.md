@@ -19,3 +19,7 @@ Output :
 
 
 ![image](https://github.com/AMANPATEL1108/MAD_Practical_10_21012011063/assets/108643338/311689ee-d29a-46cd-b9d8-59749370b147)
+
+
+
+![image](https://github.com/AMANPATEL1108/MAD_Practical_10_21012011063/assets/108643338/5f8c95e2-300e-4b89-acfa-c8a411296ea5)
